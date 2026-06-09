@@ -1,4 +1,4 @@
-
+Experience jujutsu infinite like never before with updated jujutsu infinite Scripts, the #1 Script. Includes fly and no cooldown for unbeatable
 
 
 
